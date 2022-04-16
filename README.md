@@ -2,7 +2,7 @@
 
 - 💻 I am a French and English developer
 
-- 📫 You can contact me on Discord: fcd#6667
+- 📫 You can contact me on Discord: dnd#8945
 
 - 👔 My future job: Aeronautical engineer
 
