@@ -2,7 +2,7 @@
 
 - 💻 I am a French and English developer
 
-- 📫 You can contact me on Discord: ζ͜͡Cring#9233
+- 📫 You can contact me on Discord: Koaio#5759
 
 - 👔 My future job: IT engineer
 
